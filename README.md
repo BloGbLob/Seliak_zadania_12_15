@@ -1,0 +1,1 @@
+# Seliak_zadania_12_1
